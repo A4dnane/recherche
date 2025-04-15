@@ -1,3 +1,3 @@
-Hey to everyone in the community,
-This website is for my teacher if he'd ever ask me about where I got my informations for a project.
-Please don't hate thanks!
+Idk what to write here!
+So this website is just here to tell my biology teacher where I got my infos for a project.
+Thanks!
